@@ -29,6 +29,9 @@ I'm fascinated by how models mirror human traits and interested in exploring exp
 
 You can find more on my [site](https://eremetech.github.io/)
 
+## Things I like
+- I have a deep appreciation and excitement for neat products and designs.
+- I draw a lot of inspiration from visual art and smart concepts. You can find my imaginary art gallery [here](https://eremetech.github.io/gallery/) and a collection of random stuff visual appealing to me [here](https://eremetech.github.io/taste/).
 
 ## Let's talk
 
